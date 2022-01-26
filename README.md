@@ -6,7 +6,7 @@ This tool for only joker hat hackers   telegram channel https://t.me/joker_hat_h
 What is joker hat hacker ?
 
 All hacking known in one hacker that called joker hat hacker  same for black hat hacking but driffrent hacking advance hacking 
-
+just for fun purposes also use to joker hay hacking tools
 Joker hat hacking developer 
 
 Karthick from Chennai
